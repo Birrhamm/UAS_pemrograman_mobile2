@@ -1,1 +1,7 @@
-# UAS_pemrograman_mobile2
+Nama Kelompok
+
+- Nadya Khairunnisa
+
+- Dhea Dwi Adelia
+
+- Ihsan Hadimulya
